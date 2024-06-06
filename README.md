@@ -1,5 +1,5 @@
 # 💫 Hi, I'm Clarisse Bucu!
-👩‍💻 Currently looking for an internship / available for hire<br>🎓 Studying Computer Science at the University of the Philippines - Diliman<br>🤝 CEO of UP GDSC and Branding & Creatives member of UP CSI<br>🌱 Currently learning about the basics of AI and Computer Networks
+👩‍💻 Currently looking for an internship / available for hire<br>🎓 Studying Computer Science at the University of the Philippines - Diliman<br>🤝 CEO of UP GDSC and Branding & Creatives member of UP CSI<br>🌱 Learning about the basics of AI and Computer Networks
 
 
 ## 🌐 Socials:
